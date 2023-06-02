@@ -1,3 +1,5 @@
+# Eᴺᴸᴬᴿᴳe (aka Donald Trump Jr)
+
 ![Donald Trump Jr Eating a Bologna Sandwich](https://bafkreiehhe6uwclvupa33k35jn2anmucigvnh2w7gmds7rh3mn6k2n4oue.ipfs.nftstorage.link/)
 
 In a lavish kitchen hidden within Trump Tower, Donald Trump Jr. found himself feeling unusually peckish. As he paced back and forth along the marble countertops, his eyes scanned the fully stocked pantry. Nestled among the gourmet foods and exotic ingredients, he discovered a simple package of bologna. A childhood memory came flooding back, and he decided to relive that moment by creating the quintessential bologna sandwich.
